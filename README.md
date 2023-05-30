@@ -1,4 +1,8 @@
 ### Hi there 👋
+这里是Wanrip（
+是一个一个一个学生*（homo无处不在）*
+比较内向~awa~
+
 
 <!--
 **Wanrip/Wanrip** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
